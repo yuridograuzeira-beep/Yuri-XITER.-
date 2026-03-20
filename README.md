@@ -1,1 +1,1 @@
-# Yuri-XITER.-
+#1 script de yuri.-
